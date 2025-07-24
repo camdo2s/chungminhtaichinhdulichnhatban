@@ -7,7 +7,7 @@
 # 1\. Vì sao cần chứng minh tài chính khi du lịch Nhật?
 
 # Chính phủ Nhật Bản yêu cầu chứng minh tài chính nhằm đảm bảo người xin visa có đủ khả năng chi trả cho chuyến đi, không có ý định lưu trú bất hợp pháp hay lao động trái phép. Đây là yếu tố giúp tăng độ tin cậy hồ sơ của bạn.
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-lich-nhat-ban.html
 # 
 
 # 2\. Điều kiện chứng minh tài chính
